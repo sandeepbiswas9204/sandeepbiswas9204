@@ -19,3 +19,8 @@ Here are some ideas to get you started:
    > 🗣️Pronouns: He/Him
 
 [LinkedIn](www.linkedin.com/in/sandeepbiswas9204)
+
+![13](https://user-images.githubusercontent.com/96257074/233865762-90aaac32-6dbd-4609-914c-050290c59526.jpg)
+
+![14](https://user-images.githubusercontent.com/96257074/233865872-1dc93eac-b2d3-44b5-bc62-5d4574b17bd8.jpg)
+
