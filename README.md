@@ -1,4 +1,4 @@
-**🏢 Hi I am Sandeep Biswas, working as MIS-Data & Collaboration Sunlife India Service Centre Pvt Ltd Gurgaon Haryana India.**
+**🏢 Hi I am Sandeep Biswas, working as Executive-MIS Data & Collaboration at Sunlife India Service Centre Pvt Ltd Gurgaon Haryana India.**
 
 I am carrying an experience of 7+ years in helping clients in their business requirements delivery through data acquisition, analysis, driving insights through Power BI and designing solution in Microsoft Power Platform.
 
